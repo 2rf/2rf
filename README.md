@@ -1,1 +1,1 @@
-![](http://walkthrough.starmen.net/earthbound/image/screens/46/starmaster.png)
+![](https://i.imgur.com/T13MQXn.png)
